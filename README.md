@@ -1,0 +1,1 @@
+# Taqu.diplom.qr
